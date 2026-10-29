@@ -1,0 +1,2 @@
+Um diplomata que serve a [hatiskoll](obsidian://open?vault=Os%20Miseraveis%20-%20RPG\&file=Aseraha%2FOrganiza%C3%A7%C3%B5es%2FCavaleiros%20de%20hatiskoll), entrou em combate com o grupo principal dentro de um taverna na vila de minroe, eventualmente o grupo se reencontra com ele na torre de luz, aparentemente havia assuntos a tratar com os acólitos de lumen.
+![[Imagens/Pasted image 20260930123816.png]]

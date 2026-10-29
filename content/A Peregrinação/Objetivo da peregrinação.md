@@ -1,0 +1,1 @@
+A peregrinação tem como seu principal objetivo eliminar hatiskoll. Contudo, para a primeira parte da peregrinação, é necessário ir para a extremidades do mundo, seja ao extremo Norte ou ao extremo Sul.

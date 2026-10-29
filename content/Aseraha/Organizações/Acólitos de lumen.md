@@ -1,0 +1,1 @@
+Um grupo de acólitos que aparentam cultuar o Deus-Morto lúmen, com seu cadáver localizado dentro da [torre da grande fonte de luz](obsidian://open?vault=Os%20Miseraveis%20-%20RPG\&file=Aseraha%2FLocais%2FFonte%20de%20luz), utilizam um grande manto-branco e parecem levitar, não parecem dialogar muito mas quando falam normalmente falam em empíreo.

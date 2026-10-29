@@ -1,0 +1,1 @@
+Uma besta misteriosa que sempre ataca durante a noite. É muito frequente na vida de todos que moram naquela região, [Devoly](obsidian://open?vault=Os%20Miseraveis%20-%20RPG\&file=Aseraha%2FPersonagens%2FDevoly) afirma que a criatura poderia ser filha de kalia.

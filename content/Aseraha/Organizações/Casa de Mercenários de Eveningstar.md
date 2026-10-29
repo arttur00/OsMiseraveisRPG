@@ -1,0 +1,1 @@
+Grupo de mercenários na [vila de Eveningstar](obsidian://open?vault=Os%20Miseraveis%20-%20RPG\&file=Aseraha%2FLocais%2FVila%20de%20Eveningstar) que aceita trabalhos em troca de dinheiro, incluindo trabalhos considerados ilegais por muitas nações, como assasinato.
